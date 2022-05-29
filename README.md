@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RuRuShina
-- 👀 I’m interested in anime, like visual noveles 
+- 👀 I’m interested in anime, and i like visual noveles 
 - 🌱 I’m studying programming.
 - 📫 How to reach me ...
 
